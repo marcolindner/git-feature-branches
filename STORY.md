@@ -33,3 +33,8 @@ Ein Name tauchte immer wieder auf: „Gregor“.
 Er veränderte kleine Details der Vergangenheit.
 Und jedes Mal, wenn er es tat, veränderte sich auch Emmas Gegenwart.
 Freunde verschwanden aus ihrer Erinnerung, Straßen hatten andere Namen, und sie fühlte, dass die Zeit zerbröckelte.
+
+### Kapitel 5 – Entscheidung
+
+Emma stand vor der Wahl: das Buch zerstören oder Gregor darin stellen.
+Mit zitternden Händen schrieb sie selbst eine Nachricht ins Buch.
