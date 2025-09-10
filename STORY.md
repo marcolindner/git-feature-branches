@@ -1,4 +1,4 @@
-Alles klar – ich bastle dir eine kleine Geschichte in 5 Kapiteln. Jedes Kapitel kurz und knackig, 5–10 Sätze. Thema: **Ein geheimnisvolles Buch in einer kleinen Stadtbibliothek**.
+Thema: **Ein geheimnisvolles Buch in einer kleinen Stadtbibliothek**.
 
 ---
 
