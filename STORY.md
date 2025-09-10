@@ -41,3 +41,14 @@ Mit zitternden Händen schrieb sie selbst eine Nachricht ins Buch.
 „Gregor, wir müssen reden. Heute Nacht, am alten Brunnen.“
 Als sie das Buch zuklappte, wusste sie, dass dies ihr Schicksal besiegelte.
 Ob die Stadt morgen noch dieselbe sein würde, lag nun in ihren Händen.
+
+### Kapitel 6 – Der letzte Funke
+
+Am Brunnen wartete Gregor bereits, das Buch unter dem Arm.
+Sein Blick war müde, fast verzweifelt – kein Feind, sondern ein Gefangener der Seiten.
+„Ich wollte nur meine Fehler ungeschehen machen“, flüsterte er.
+Emma verstand: Das Buch verlockte jeden, die Vergangenheit nach seinen Wünschen zu formen.
+Gemeinsam legten sie es in den Brunnen, und das Wasser verschluckte es mit einem leisen Zischen.
+Ein Windstoß fegte durch die Stadt, Straßen und Namen setzten sich wieder zurecht.
+Emma fühlte, wie die Erinnerung an Freunde zurückkehrte.
+Nur das Buch war verschwunden – oder vielleicht wartete es schon im nächsten Regal auf den nächsten Suchenden.
