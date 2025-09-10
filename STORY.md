@@ -25,3 +25,9 @@ Doch irgendwann erkannte sie, dass die Orte und Namen nicht erfunden waren.
 Sie sah Szenen aus ihrer Stadt – aber Jahre in der Vergangenheit.
 Das Buch zeigte Geheimnisse, die niemand mehr wissen konnte.
 Emma begriff: Das Buch war ein Tor zur Geschichte selbst.
+
+### Kapitel 4 – Die Gefahr
+
+Als Emma tiefer in das Buch eintauchte, bemerkte sie, dass jemand anderes es ebenfalls benutzte.
+Ein Name tauchte immer wieder auf: „Gregor“.
+Er veränderte kleine Details der Vergangenheit.
