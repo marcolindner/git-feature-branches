@@ -31,3 +31,5 @@ Emma begriff: Das Buch war ein Tor zur Geschichte selbst.
 Als Emma tiefer in das Buch eintauchte, bemerkte sie, dass jemand anderes es ebenfalls benutzte.
 Ein Name tauchte immer wieder auf: „Gregor“.
 Er veränderte kleine Details der Vergangenheit.
+Und jedes Mal, wenn er es tat, veränderte sich auch Emmas Gegenwart.
+Freunde verschwanden aus ihrer Erinnerung, Straßen hatten andere Namen, und sie fühlte, dass die Zeit zerbröckelte.
