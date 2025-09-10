@@ -38,3 +38,4 @@ Freunde verschwanden aus ihrer Erinnerung, Straßen hatten andere Namen, und sie
 
 Emma stand vor der Wahl: das Buch zerstören oder Gregor darin stellen.
 Mit zitternden Händen schrieb sie selbst eine Nachricht ins Buch.
+„Gregor, wir müssen reden. Heute Nacht, am alten Brunnen.“
